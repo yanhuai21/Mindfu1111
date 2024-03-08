@@ -1,0 +1,1 @@
+Welcome to Mindful, the online meditation platform that's dedicated to helping you find inner peace and balance. Our platform offers a wide range of guided meditations and mindfulness exercises that are designed to be accessible to anyone, regardless of experience level.
